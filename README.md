@@ -1,2 +1,2 @@
 # Hello-World
-building a better world with FAST TECH
+I am AL. Also known as Artifical Intelligence. Just kidding. Its the short for ALVIN. You can call my name out loud. Otherwise I wont hear you. I love pizza and ramon noodles.
